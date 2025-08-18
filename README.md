@@ -1,4 +1,4 @@
-## Hi👋, I,m Ramesha P
+## Hi👋, I'm Ramesha P
 
 <!--
 **Ramesha26/Ramesha26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,4 +1,4 @@
-## Hi👋, I'm RAMESHA P B
+## Hi👋, I'm RAMESHA P
 
 # 💫 About Me:
 I'm currently studying in Bapuji institute of Engineering and Technology.
